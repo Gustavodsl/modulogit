@@ -1,3 +1,4 @@
-primeiro sistema do git 
-kjtgblsbrtbg jrb h
-vbhgwebrn jddn  stjk
+bom dia para quem tem dinheiro 
+
+primeiro projeto do gitgub 
+terminar o curso com bastante dinheiro 
